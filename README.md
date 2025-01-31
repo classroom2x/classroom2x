@@ -11,7 +11,9 @@ Here are some of the favorite game site links:
 - [Unblocked School Games - Game Collection](https://unblocked-school-games.my.canva.site)
 
 
-![Game Image](https://i.hizliresim.com/cxex01r.png)
+
+<a href="https://lessons1.lol/"><img src="https://clearcache.store/games.png"></a>
+
 
 
 ## 🕹️ How to Play?
